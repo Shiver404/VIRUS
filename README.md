@@ -10,3 +10,5 @@ https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/7feaaa44-2cf9-4713-8ac
 https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/a54aa7fa-781c-4220-8dd9-f7a4fb766f88/df4wspm-f68f97cb-d6b0-40a3-8440-2d9442b30820.jpg/v1/fit/w_680,h_480,q_70,strp/backrooms_lobby_level__2__by_the_backrooms_df4wspm-375w-2x.jpg?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7ImhlaWdodCI6Ijw9NDgwIiwicGF0aCI6IlwvZlwvYTU0YWE3ZmEtNzgxYy00MjIwLThkZDktZjdhNGZiNzY2Zjg4XC9kZjR3c3BtLWY2OGY5N2NiLWQ2YjAtNDBhMy04NDQwLTJkOTQ0MmIzMDgyMC5qcGciLCJ3aWR0aCI6Ijw9NjgwIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmltYWdlLm9wZXJhdGlvbnMiXX0.H4hgz6lZ9S3-YUhCQ05ozJz54YnWr12GhqLO7PZ0CT4
 
 YOU'RE NOT FROM HERE ! ! ! ! ! ! ! ! ! ! !
+
+![](https://media.tenor.com/Fx49PN5k2hcAAAAC/weird-core.gif)
